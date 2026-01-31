@@ -8,4 +8,4 @@
 
 💞️ I’m eager to collaborate on projects to learn and gain experience, with a particular interest in data engineering and game development.
 
-📫 How to reach me: Feel free to DM me on Telegram: @facundevz
+📫 How to reach me: Feel free to DM me on Telegram: @fernandezsidan
